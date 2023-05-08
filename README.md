@@ -1,4 +1,4 @@
-# Hello There, after a long delay this Portfolio is now under construction with the help off a space-cat Hope tp see you soon!
+# Hello There, after a long delay this Portfolio is now under construction with the help off a space-cat Hope to see you soon!
 
 ### General Kenobi!
 
